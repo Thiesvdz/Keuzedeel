@@ -1,2 +1,2 @@
-### tijdelijke wireframe Add-Energy periode 8
+### Wireframe Add-Energy periode 8
 
