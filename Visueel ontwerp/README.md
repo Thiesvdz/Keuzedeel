@@ -1,2 +1,2 @@
-### Visueel ontwerp period 8 Add-Energy
+### Visueel ontwerp periode 8 Add-Energy
 
