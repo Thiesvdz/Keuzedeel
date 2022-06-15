@@ -1,1 +1,1 @@
-### In de repository staan mijn designs/websites en trello links van de afgelopen periodes
+### In de repository staan mijn keuzedeel bewijzen van de afgelopen periodes
